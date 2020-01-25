@@ -1,5 +1,5 @@
 Makerspace Gütersloh e.V.  
-- Vorstand -
+\- Vorstand -
 
 c/o Die Weberei - Bürgerkiez gGmbH  
 Bogenstraße 1-8  
